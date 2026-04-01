@@ -1,0 +1,1 @@
+# stara-zagora-1879-libor-bayer-plan
